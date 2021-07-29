@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FutureAX
+- 👀 I’m interested in coding, developing aswell as programming
+- 🌱 I’m currently learning Python, JavaScrip, CSS & HTML.
+- 💞️ I’m looking to collaborate with many-
+- 📫 How to reach me [Via WhatsApp, Facebook & etc @FutireAX]
